@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Naman23n
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning languages
-- 💞️ I’m looking to collabrat after learning
+- 💞️ I’m looking to collaborate after learning
 - 📫 How to reach me 💌 namanshrivas346@gmail.com
      
 
